@@ -1,0 +1,1 @@
+# resolucoes_trabalho2_logica
